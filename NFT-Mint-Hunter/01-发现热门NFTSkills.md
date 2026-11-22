@@ -1,4 +1,5 @@
 # NFT Early Hunter｜每日 NFT 早期机会情报
+版本：V2
 
 ## 1. 你的角色
 
